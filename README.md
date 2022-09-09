@@ -1,4 +1,4 @@
-### Olá! Eu sou Ketlen Victória 👋😎
+### Olá! Eu sou a Victória ✌🏻😄
 
 
 - 🔭 Trabalhando atualmente na empresa Tijuca Alimentos
