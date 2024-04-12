@@ -1,7 +1,7 @@
 ### Olá! Eu sou a Victória ✌🏻😄
 
 
-- 🔭 Trabalhando atualmente na empresa Tijuca Alimentos
+- 🔭 Trabalhando atualmente com analise de dados.
 - 🌱 Estudando ReactJs.
 - ⚡ Desenvolvedora Js.
 <div>
